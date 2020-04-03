@@ -1,2 +1,2 @@
 # hello-world
-good godd study,day day up!
+good good study,day day up!
