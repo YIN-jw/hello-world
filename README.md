@@ -1,2 +1,2 @@
 # hello-world
-Be an adorable person.
+good godd study,day day up!
